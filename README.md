@@ -1,2 +1,1 @@
-# kenhrmt.github.io
-📛 My personal site.
+Hi, I am Kenny✌️
